@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently Studying at Fast NUCES<br><br>🌱 I’m currently learning Artificial Intelligence<br><br>👯 I’m looking to join any AI internship<br><br>👨‍💻 All of my projects are available at https://github.com/maaziqrar1<br><br>📫 How to reach me maaziqrar@gmail.com
+🔭 I’m currently Studying at Fast NUCES<br><br>🌱 I’m currently learning Artificial Intelligence<br><br>👯 I’m looking to join any AI internship<br><br>👨‍💻 All of my projects are available at https://github.com/maaziqrar1<br><br>📫 How to reach me maaziqrar1@gmail.com
 
 
 ## 🌐 Socials:
